@@ -3,7 +3,7 @@
 **Prayash Dash**\
 **21085063**\
 **B.Tech Electrical Engineering**\
-**LinkedIn:** https://www.linkedin.com/in/prayashdash/
+**LinkedIn:** https://www.linkedin.com/in/prayashdash/ \
 **Contact:** 8018179474\
 
 
