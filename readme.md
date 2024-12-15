@@ -4,7 +4,7 @@
 **21085063**\
 **B.Tech Electrical Engineering**\
 **LinkedIn:** https://www.linkedin.com/in/prayashdash/ \
-**Contact:** 8018179474\
+**Contact:** 8018179474 \
 
 
 ## Resources and more tips
